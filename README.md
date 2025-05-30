@@ -1,6 +1,6 @@
 👋 Hi, I’m @opyadav2308/ Om Prakash Yadav
 
-👀 I’m interested in .Web Development Field
+👀 I’m Web Developer
 
 📫 E-mail to reach me ...opyadav2308@gmail.com
 
